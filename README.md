@@ -1,2 +1,1 @@
 # lekcii
-# lekcii
